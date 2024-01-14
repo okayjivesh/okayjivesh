@@ -139,7 +139,7 @@
           can’t describe how much you mean to me.
         </p>
         <p>......This is Not limited here</p>
-        <p>You are My Everything Bro 💖.</p>
+        <p>You are My Everything babee 💖.</p>
 
         <h2>Can we hang out soon?</h2>
         <br />
